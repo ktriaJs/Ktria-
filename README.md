@@ -12,4 +12,4 @@ Dillerinde Çalışmalar Yapmaktayım 😍
 
 Bana Ulaşmak İsteyenler İçin Sosyal Medya Hesabım Aşağıda ⬇
 
-https://www.instagram.com/ktriayaa_/
+https://www.instagram.com/ktria.jss/
